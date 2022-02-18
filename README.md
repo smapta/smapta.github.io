@@ -1,0 +1,1 @@
+# smapta.github.io
